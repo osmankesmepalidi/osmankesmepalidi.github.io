@@ -1,0 +1,1 @@
+# osmankesmepalidi.github.io
